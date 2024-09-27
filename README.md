@@ -8,6 +8,8 @@ We will foster strong connections for 42 cadets by making it fun and rewarding t
 (2) CapCut Pro
 (3) Figma
 
+### Slide Deck
+[Link to Deck}(https://www.canva.com/design/DAGR2nTThCQ/EJ4b18F6gpzXzlN_0KKLhQ/edit?utm_content=DAGR2nTThCQ&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 ### Vlog
 [Link to our VLOG](https://www.youtube.com/watch?v=XnQTIVCabIs)
 
